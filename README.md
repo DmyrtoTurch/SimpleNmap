@@ -1,1 +1,2 @@
 # SimpleNmap
+ifconfig😈😈👿👿
